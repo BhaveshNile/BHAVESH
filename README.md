@@ -64,7 +64,7 @@
 
 ## 🔗 Connect with Me
 
-- **LinkedIn:** [Your LinkedIn Profile](#)
+- **LinkedIn:** [https://www.linkedin.com/in/bhavesh-nile]#)
 - **Email:** [bhaveshnilebn26@gmail.com](#)
 
 
